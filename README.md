@@ -11,4 +11,4 @@
  ㅤ ㅤㅤㅤㅤ ㅤ"Will you treat me like the Akademiya did? Will you call me a monster, a madman?" ㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ  ㅤㅤ "Or will you treat me as my hometown did, and chase me away with pitchforks and clubs...?"
 
  ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ 
-![](https://64.media.tumblr.com/e7eaf2041a227187ca860eb8006acb7e/ddac6970d3deab0e-d7/s400x600/88b06252c62a916c2d24ac6f8ee00e44926febd0.gifv)![](https://64.media.tumblr.com/e7eaf2041a227187ca860eb8006acb7e/ddac6970d3deab0e-d7/s400x600/88b06252c62a916c2d24ac6f8ee00e44926febd0.gifv)
+![](https://64.media.tumblr.com/e7eaf2041a227187ca860eb8006acb7e/ddac6970d3deab0e-d7/s400x600/88b06252c62a916c2d24ac6f8ee00e44926febd0.gifv)![](https://64.media.tumblr.com/e7eaf2041a227187ca860eb8006acb7e/ddac6970d3deab0e-d7/s400x600/88b06252c62a916c2d24ac6f8ee00e44926febd0.gifv)![](https://64.media.tumblr.com/e7eaf2041a227187ca860eb8006acb7e/ddac6970d3deab0e-d7/s400x600/88b06252c62a916c2d24ac6f8ee00e44926febd0.gifv)
